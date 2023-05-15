@@ -10,6 +10,5 @@
   •十字螺丝刀 ×1
   
 ![Image text](https://github.com/qweasdq21/-Spirograph-WDT/blob/d5bd06f087ca3bf639fae03c00f93d7ca84d2767/O1CN01ZTgLSu29O9wPkeb10_!!4022418057.jpg)
-![Image text](https://github.com/qweasdq21/-Spirograph-WDT/blob/d5bd06f087ca3bf639fae03c00f93d7ca84d2767/O1CN01NDVGKJ29O9wSbmJrT_!!4022418057.jpg)
 ![Image text](https://github.com/qweasdq21/-Spirograph-WDT/blob/d5bd06f087ca3bf639fae03c00f93d7ca84d2767/%E5%9B%BE%E7%89%87/DSCF9010.jpg)
 ![Image text](https://github.com/qweasdq21/-Spirograph-WDT/blob/d5bd06f087ca3bf639fae03c00f93d7ca84d2767/%E5%9B%BE%E7%89%87/DSC_0101.jpg)
